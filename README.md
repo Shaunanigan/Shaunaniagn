@@ -1,2 +1,0 @@
-# Shaunaniagn
-Straunys Profile pages
